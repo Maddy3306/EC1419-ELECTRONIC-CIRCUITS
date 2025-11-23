@@ -10,8 +10,9 @@
 ![WhatsApp Image 2025-11-21 at 17 36 40_428489ca](https://github.com/user-attachments/assets/46f49087-41c3-448e-8ca3-061c2dccc1d1)
 
 ## Semilog Graph
-![WhatsApp Image 2025-11-21 at 11 11 41_e8ddf885](https://github.com/user-attachments/assets/de801a4a-0be6-4ab4-9f1d-3c5c22d74a1f)
+![WhatsApp Image 2025-11-23 at 20 12 39_8b03de2d](https://github.com/user-attachments/assets/ce269ba5-d775-45c4-9be9-9e779d3d719b)
 
 
 ## Result 
-![WhatsApp Image 2025-11-21 at 17 57 58_e9aa0e1d](https://github.com/user-attachments/assets/8eaefb54-fccc-4bda-aab1-24e8ccc3c70a)
+![WhatsApp Image 2025-11-23 at 20 10 18_3169782f](https://github.com/user-attachments/assets/87bf572e-6921-4a4c-a292-64e1849b69c0)
+
